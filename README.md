@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KONGTANKYOU
 - 👀 I’m interested in Codding
-- 🌱 I’m currently learning English Chinese
+- 🌱 I’m currently learning English Chinese languages
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Kong
 
